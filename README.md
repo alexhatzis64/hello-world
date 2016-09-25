@@ -2,5 +2,5 @@
 and all who inhabit it
 *falls down stairs
 
-Bleh meh mah neh meal of the day, bla bleh bleh Gary's way.
+It's the most important meal of the day, servin' it up Gary's way.
 BLEEEGGGHHHH
